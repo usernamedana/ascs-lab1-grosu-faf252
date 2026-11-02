@@ -1,1 +1,1 @@
-# ascs-lab1-grosu-faf252
+Grosu Daniela, FAF-252, Variant D
